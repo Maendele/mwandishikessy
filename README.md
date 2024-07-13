@@ -5,8 +5,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-Director13  harker nicheki 0752338972
-💝💝💝 please do not let any jokes please
+iam assistant of mwandishi wa google i miss you to ask you a quatation
 
 <!---
 Maendele/Maendele is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
